@@ -7,4 +7,4 @@ description: >-
 ---
 ![Cheyenne Spirit coneflower seedling](/img/coneflower_seedling.jpg)
 
-This is a cone flower from our [Cheyenne Spirit](http://www.johnnyseeds.com/p-8809-cheyenne-spirit.aspx) seed packet which is an AAS Winner. Planting started this year in February. Some other things which have been started since are Goldenrod, Mesa Yellow blanket flower, lavender, onions, parsley, pepper on a stick (ornamental), snapdragons, eggplant, and various bell peppers.
+This is a coneflower from our [Cheyenne Spirit](http://www.johnnyseeds.com/p-8809-cheyenne-spirit.aspx) seed packet which is an AAS Winner. Planting started this year in February. Some other things which have been started since are Goldenrod, Mesa Yellow blanket flower, lavender, onions, parsley, pepper on a stick (ornamental), snapdragons, eggplant, and various bell peppers.
