@@ -3,6 +3,7 @@ title: Seeds are sprouting!
 date: 2011-03-13T03:32:57.856Z
 description: |
   The seeds for our first garden are sprouting!
+image: /img/first_seedlings_2011.jpg
 ---
 ![sprouted pea seedlings](/img/first_seedlings_2011.jpg)
 
