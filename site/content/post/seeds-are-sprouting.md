@@ -15,7 +15,7 @@ To help us figure everything out, we've been using a garden planner and it has h
 
 ![small gardening workbench](/img/first_seedlings_2011_growing_worktable.png)
 
-We've re-purposed a small workbench as our potting station for making [soil blocks](https://www.johnnyseeds.com/tools-supplies/seed-starting-supplies/soil-block-makers/). On the shelf below you can see our watering pitcher, chamomile tea, and cinnamon sticks. The chamomile and cinnamon helps kill off fungus and otherwise keep the ick off your seedlings and soil. I add a little plant food as well although the plants should be fairly set with the compost in the blocks.
+We've re-purposed a small workbench as our potting station for making soil blocks. On the shelf below you can see our watering pitcher, chamomile tea, and cinnamon sticks. The chamomile and cinnamon helps kill off fungus and otherwise keep the ick off your seedlings and soil. I add a little plant food as well although the plants should be fairly set with the compost in the blocks.
 
 ![growing shelf for seedlings](/img/first_seedlings_2011_growing_shelf.jpg)
 
